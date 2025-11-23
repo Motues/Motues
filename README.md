@@ -8,6 +8,6 @@
 - 🌸听歌--[一起去看日出吧](https://music.163.com/#/mv?id=14719419)!
 - 💻下雨天开一盏灯，写写代码！
 - 🤖焊板，修车，[RMer](https://www.robomaster.com/)！
-- 🌲拥有一个小小的 Minecraft [服务器](https://mc.motues.top)
+- 🌲拥有一个小小的 Minecraft 服务器！
 
 欢迎来我的[主页](https://motues.top/)玩咯！
