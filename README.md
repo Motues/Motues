@@ -10,4 +10,4 @@
 - 🤖焊板，修车，[RMer](https://www.robomaster.com/)！
 - 🌲拥有一个小小的 Minecraft 服务器！
 
-欢迎来我的[主页](https://motues.top/)玩咯！
+欢迎来我的[主页](https://www.motues.top/)玩咯！
